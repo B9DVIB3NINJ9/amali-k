@@ -1,0 +1,2 @@
+# amali-k
+keje skolah
